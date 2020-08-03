@@ -6,7 +6,7 @@ Yawwi Gifts has a lot of jewlery for adults, teens, kids, and even toddlers!
 
 **Instagram:** [@yawwigifts](https://www.instagram.com/yawwigifts/)
 
-**Phone:** 
+**Phone:** 613-316-6113 
 
 **Email:** [Yawwistore@gmail.com]
 

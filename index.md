@@ -2,6 +2,6 @@
 
 ## Contact Us
 
-**Instagram** [@yawwigifts](https://www.instagram.com/yawwigifts/)
+**Instagram:** [@yawwigifts](https://www.instagram.com/yawwigifts/)
 
-**Phone** 
+**Phone:** 

@@ -1,5 +1,5 @@
 ## Welcome to Yawwi Gifts!
-Yawwi Gifts has a lot of jewlery for adults, teens, kids, and even toddlers!
+Yawwi Gifts has a lot of jewlery for adults, teens, kids, and even toddlers! We customize our products to fit your needs. 
 
 
 ## Contact Us! 

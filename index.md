@@ -1,5 +1,5 @@
 ## Welcome to Yawwi Gifts!
-Yawwi Gifts has a lot of jewlery for adults, teens, kids, and even toddlers! We customize our products to fit your needs. We have over 3,000 products to fit your fashion and style! From bracelets, to necklaces, to earings, rings, anklets, bookmarks, and hair clips we have them all! 
+Yawwi Gifts has a lot of jewlery for adults, teens, kids, and even toddlers! We customize our products to fit your needs. We have over 3,000 products to fit your fashion and style! From bracelets, to necklaces, to earings, rings, anklets, bookmarks, and hair clips we have them all!
 
 ## Contact Us! 
 
